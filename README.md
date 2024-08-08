@@ -4,6 +4,9 @@ Estudante do E.E Eduardo Velho Filho
 
 Jogador de roblox e valorant
 
+Emails:
+00001108034871sp@aluno@al.educacao.sp.gov.br
+
 <!--
 **KENTOTAK3S2024/KENTOTAK3S2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
