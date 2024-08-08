@@ -1,4 +1,8 @@
-## Hi there 👋
+## Kento 😳😈
+
+Estudante do E.E Eduardo Velho Filho
+
+Jogador de roblox e valorant
 
 <!--
 **KENTOTAK3S2024/KENTOTAK3S2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
